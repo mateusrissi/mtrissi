@@ -2,4 +2,4 @@
 
 ## 📬 Get in touch
 
-- LinkedIn: [linkedin.com/in/mtrissi]
+- LinkedIn: [linkedin.com/in/mtrissi][2]
